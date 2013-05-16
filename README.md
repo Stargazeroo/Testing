@@ -6,5 +6,3 @@ Vova Stargazer
 yoyo
 
 
-kdsggklsghsg
-fdfddd
